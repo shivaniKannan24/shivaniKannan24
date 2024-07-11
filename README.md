@@ -6,7 +6,7 @@ Adept at troubleshooting, problem-solving, and collaborating with cross-function
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning java
 - 📫 How to reach me shivanikc2408@gmail.com
-- 😄 Pronouns: If oppurtunity doesn't knock, build a door
+- 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: We can't see our eyes with our eyes directly 
 
 School topper in SSLC
